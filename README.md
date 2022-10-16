@@ -12,3 +12,10 @@
 - 📫 How to reach me: Email me at larriv20@student.wintec.ac.nz
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact:  I enjoy playing the guitar!
+
+
+
+Come Check my socials! 
+
+https://zagiri.github.io/Portfolio/
+https://www.linkedin.com/in/larry-rivada-7a3113242/
